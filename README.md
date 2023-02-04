@@ -1,26 +1,2 @@
 # LastyLeak
 https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
-https://discord.gg/NkweytxRsn
